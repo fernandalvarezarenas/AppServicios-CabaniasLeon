@@ -9,3 +9,7 @@ Por ello vamos a hacer un pase de lista en este documento. Todos los que partici
 
 Cesar Esteban
 esteban0.8@hotmai.com
+
+María Fernanda 
+fernanda.alvarez.arenas@gmail.com
+maria.alvareza@alumno.buap.mx
